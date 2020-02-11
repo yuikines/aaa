@@ -1,0 +1,2 @@
+# euquerermorrer
+morte suicida 
